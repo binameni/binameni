@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @binameni
+- 👋 Hi, I’m mobina
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning nothing😂
 - 💞️ I’m looking to collaborate on UI
-- 📫 How to reach me : no way...
+- 📫 How to reach me : no way...(maybe with my telegram ID)
 - 😉you can find my by @bina_meni every where
 
 <!---
